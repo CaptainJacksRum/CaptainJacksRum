@@ -11,7 +11,7 @@ DNI: Satanists, pedophiles, zoophiles, witches. IWC people that are 20+ or 12-. 
 
 Kins: Captain Jack Sparrow, Octavia Goetia, Nico di Angelo (possibly more idk)
 
-I am a proud Christian. I don't like talking about religion, but I will always worship the man above. I'm bisexual.
+I'm a Christian!! & I'm bisexual.
 
 I have severe PTSD from something that happened years ago, so please don't mention any police topics near me as I'm still healing. POTC has gotten me through some rough times. With that being said, I recommend you not say anything terrible about the movies in my presence. Savvy?
 
