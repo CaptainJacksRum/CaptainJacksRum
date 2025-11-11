@@ -3,7 +3,7 @@
 ୨୧ Jack • Hermes • Poseidon • Dionysus
 She/Her「」 13-16
 
-HIIII!! I'm Jack! Assuming you came from PonyTown, as this is a PonyTown only Github, PLEASE INT!!! I'm very social unless tired or in a bad mood which is rare. You'll catch me either in the Greek Mythology or Hazbin area
+HIIII!! I'm Jack! Assuming you came from PonyTown, as this is a PonyTown only Github, PLEASE INT!!! I'm very social unless tired or in a bad mood which is rare. You'll catch me either in the Greek Mythology or Hellaverse area. If you ever see me in the Hell area, Charlies IWC
 
 Interests/Likes: Pirates of the Caribbean, Forsaken, How to Train Your Dragon, Percy Jackson, EPIC the musical, Hamilton, Arcane, The Amazing Digital Circus, Hazbin Hotel, Helluva Boss, MHA/BNHA, the Rolling Stones, Black Sabbath, Morgan Wallen, the beach, dogs, blue, the ocean, cosplaying (+ more)
 
