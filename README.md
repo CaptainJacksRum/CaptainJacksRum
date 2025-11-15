@@ -10,7 +10,7 @@
 
 —
 
-👍 # Likes/Interests :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Rick & Morty, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, the ocean, cosplaying
+👍 # Likes/Interests :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Hazbin Hotel, Helluva Boss, Rick & Morty, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, the ocean, cosplaying
 
 ☓ # DNI/Dislikes :: Satanism, Pedophiles, Zoophiles, Rapists, the usual DNI criteria... people 18+ IWC unless I've known you for a while
 
@@ -20,7 +20,7 @@
 
 ❤️ # Kins :: Captain Jack Sparrow, Octavia Goetia, Nico di Angelo, Telemachus. My biggest kin is Jack (words cannot express how much this man means to me)
 
-💝 # Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Joshamee Gibbs, Admiral James Norrington, Lord Cutler Beckett, Jinx/Powder, Silco, Mafioso, Toothless, Light Fury, the Nightlights, Nico di Angelo, Poseidon (PJO), Dionysus (PJO), Rick Sanchez
+💝 # Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Joshamee Gibbs, Admiral James Norrington, Lord Cutler Beckett, Jinx/Powder, Silco, Mafioso, Toothless, Light Fury, the Nightlights, Nico di Angelo, Poseidon (PJO), Dionysus (PJO), Alastor, Vox, Valentino, Lucifer, Blitzø, Fizzarolli, Rick Sanchez
 
 —
 
