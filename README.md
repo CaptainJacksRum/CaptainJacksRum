@@ -6,7 +6,9 @@
 
 —
 
-📢 # HIIII!! I'm Jack! Since this is a PonyTown Github, PLEASE C+H!!! I very friendly trust plsplspls. I hang out at the Greek Mythology area, but sometimes in the Hellaverse area. If you see me in the Hazbin & Helluva area, IWC
+📢 # HIIII!! I'm Jack! Since this is a PonyTown Github, PLEASE C+H!!! I very friendly trust plsplspls. I hang out at the Greek Mythology area, but sometimes in the Hellaverse area. If you see me in the Hazbin & Helluva area, IWC. PLEASE ROLEPLAY WITH ME!!!! I love roleplays....
+
+If I'm a certain character, I'll act as them
 
 —
 
