@@ -20,10 +20,10 @@ If I'm a certain character, I'll act as them
 
 —
 
-❤️ # Kins :: Captain Jack Sparrow, Octavia Goetia, Nico di Angelo, Telemachus. My biggest kin is Jack (words cannot express how much this man means to me)
+❤️ # Kins :: Captain Jack Sparrow, Octavia Goetia, Nico di Angelo, Telemachus, Vox/Vincent Whittman
 
-💝 # Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Joshamee Gibbs, Admiral James Norrington, Lord Cutler Beckett, Jinx/Powder, Silco, Mafioso, Toothless, Light Fury, the Nightlights, Nico di Angelo, Poseidon (PJO), Dionysus (PJO), Alastor, Vox, Valentino, Lucifer, Blitzø, Fizzarolli, Rick Sanchez
+💝 # Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Joshamee Gibbs, Admiral James Norrington, Lord Cutler Beckett, Jinx/Powder, Silco, Mafioso, Toothless, Light Fury, the Nightlights, Nico di Angelo, Poseidon (PJO), Dionysus (PJO), Alastor, Vox/Vincent Whittman, Valentino, Lucifer, Blitzø, Fizzarolli, Rick Sanchez
 
 —
 
-( I may add more to this, you never know! )
+( I may add more to this, u never know )
