@@ -15,7 +15,7 @@ If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as the
 
 ❌️ ︵ Dislikes/DNI: Satanists, pedophiles, zoophiles, witches. If you're 18+ or 12-, pls IWC !!
 
-⚠ ︵ Triggers :: Topics of police officers or suicide. Please don't bring up anything cop related in my presence. If you bring up suicide, do so carefully when I'm around
+⚠ ︵ Triggers :: Topics of police officers or suicide. Please don't bring up anything cop or suicide related when I'm around unless I know you personally
 
 • ———— # 🎀 # ———— •
 
