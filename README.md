@@ -7,7 +7,7 @@
 
 📣 ︵ HELLO !!! I'm Jack/Vincent! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT & ROLEPLAY W ME!!! I'm very friendly I swear
 
-If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as them. If you get uncomfortable over what I say when I'm Val, PLEASE LET ME KNOW!!!
+If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as them. I'm very in character when I'm Val, just a warning!! sigh...
 
 • ———— # 🎀 # ———— •
 
@@ -22,7 +22,7 @@ If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as the
 ![Image](https://github.com/user-attachments/assets/9a793d65-018e-431c-bfd8-6bd8303f925a)
 (MADE BY ME, PNGS BY OTHERS!! My watermark is on this)
 
-❗ ︵ Kins :: Vox (HH), Captain Jack Sparrow (POTC), Telemachus (ETM), Nico di Angelo (PJO)
+❗ ︵ Kins :: Vox (HH), Captain Jack Sparrow (POTC), Telemachus (ETM), Nico di Angelo (PJO), Octavia Goetia (HB)
 
 ❕ ︵ Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral Lawrence & James Norrington (POTC), Jinx, Silco (ARCANE), Poseidon, Zeus, Hermes, Telemachus (ETM), Mafioso (FORSAKEN), Toothless (HTTYD), Jax (TADC), Dionysus, Nico di Angelo, Apollon, Hermes (PJO), Thomas Jefferson (HMLTN), Vox, Alastor, Valentino (HH)
 
