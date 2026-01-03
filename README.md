@@ -5,7 +5,7 @@
 
 • ———— # 🎀 # ———— •
 
-📣 ︵ HELLO !!! I'm Jack/Vincent! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT & ROLEPLAY W ME!!! I'm very friendly I swear
+📣 ︵ HELLO !!! I'm Jack/Vincent! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT & ROLEPLAY W ME!!! I'm very friendly I swear pslspslsls
 
 If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as them. I'm very in character when I'm Val, just a warning!! sigh...
 
@@ -13,9 +13,9 @@ If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as the
 
 ✅ ︵ Interests/Likes :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Hazbin Hotel, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, anything blue
 
-❌️ ︵ Dislikes/DNI: Satanists, pedophiles, zoophiles, witches. If you're 18+ or 12-, pls IWC !!
+❌️ ︵ Dislikes/DNI: Satanists, pedophiles, zoophiles, witches. IF YOU MAKE JESUS GAY DO NOT INTERACT. 18+ & 13- IWC pls !!
 
-⚠ ︵ Triggers :: Topics of police officers or suicide. Please don't bring up anything cop or suicide related when I'm around unless I know you personally
+⚠ ︵ Triggers :: Topics of police officers or suicide. Please don't bring up anything cop or suicide related when I'm around unless we're friends plspslspslsl
 
 • ———— # 🎀 # ———— •
 
@@ -28,4 +28,4 @@ If I'm ever in my Valentino, Captain Jack Sparrow, or Vox ponies I'll act as the
 
 ❝ 𝐘𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐰𝐚𝐧𝐧𝐚 𝐛𝐞 𝐛𝐚𝐝 𝐰𝐢𝐭𝐡 𝐮𝐬 !! ❝
 
-If interested, check out my second respiratory to see the different ships I like !!!
+If interested, check out my second respiratory to see the ships I like !!!
