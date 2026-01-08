@@ -5,7 +5,7 @@
 
 • ———— # 🦈 # ———— •
 
-📣 ︵ HELLO !!! I'm Jack! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT OR ROLEPLAY W ME!!! I'm very friendly I swear pslspslsls
+📣 ︵ HELLO !!! I'm Jack! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT OR ROLEPLAY W ME (unless DNI/IWC is in my name)!!! I'm very friendly I swear pslspslsls
 
 If I'm ever in my Valentino pony, beware that I am far too in character. Unless you're into that😉...
 
