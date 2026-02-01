@@ -7,13 +7,11 @@
 
 📣 ︵ HELLO !!! I'm Jack! As stated in my description, this is a PonyTown only Github. If you see me around, PLEASE C+H/INT OR ROLEPLAY W ME (unless DNI/IWC is in my name)!!! I'm very friendly I swear pslspslsls
 
-If I'm ever in my Valentino pony, beware that I am far too in character. Unless you're into that😉...
-
 • ———— # 🦈 # ———— •
 
 ✅ ︵ Interests/Likes :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Hazbin Hotel, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, anything blue
 
-❌️ ︵ Dislikes/DNI: Satanists, pedophiles, zoophiles, witches. IF YOU MAKE JESUS GAY DO NOT INTERACT. 18+ & 13- IWC pls !!
+❌️ ︵ Dislikes/DNI: Typical DNI criteria, satanists. If you make Jesus gay or an Overlord on PT do not interact please. 18+ & 13- IWC.
 
 ⚠ ︵ Triggers :: Topics of police officers or suicide. Pls don't bring up anything cop or suicide related when I'm around unless we're friends plspslspslsl
 
@@ -24,6 +22,6 @@ If I'm ever in my Valentino pony, beware that I am far too in character. Unless 
 
 ❗ ︵ Kins :: Vox (HH), Captain Jack Sparrow (POTC), Telemachus (ETM), Nico di Angelo (PJO), Octavia Goetia (HB)
 
-❕ ︵ Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral Lawrence & James Norrington, Joshamee Gibbs (POTC), Jinx, Silco (ARCANE), Poseidon, Zeus, Hermes, Telemachus (ETM), Mafioso (FORSAKEN), Toothless (HTTYD), Jax (TADC), Dionysus, Nico di Angelo, Apollon, Hermes (PJO), Thomas Jefferson (HMLTN), Vox, Alastor, Valentino (HH)
+❕ ︵ Comfort characters :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral Lawrence & James Norrington, Joshamee Gibbs (POTC), Jinx, Silco (ARCANE), Poseidon, Zeus, Hermes, Apollon (ETM), Mafioso (FORSAKEN), Toothless (HTTYD), Jax (TADC), Dionysus (PJO), Thomas Jefferson (HMLTN), The Vees & Alastor (HH)
 
 ❝ 𝐘𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐰𝐚𝐧𝐧𝐚 𝐛𝐞 𝐛𝐚𝐝 𝐰𝐢𝐭𝐡 𝐮𝐬 !! ❝
