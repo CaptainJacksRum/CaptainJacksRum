@@ -1,7 +1,6 @@
 ❝ 𝐓𝐫𝐮𝐬𝐭 𝐮𝐬 𝐰𝐢𝐭𝐡 𝐲𝐨𝐮𝐫 𝐧𝐞𝐭𝐰𝐨𝐫𝐤. ❝
 
-![Image](https://github.com/user-attachments/assets/937780bc-dbac-43f6-802c-8e35a02bcced)
-(CREDS TO OWNER!!!)
+![Image](https://github.com/user-attachments/assets/5a3bfb32-2481-4ad1-9be2-2443cbaca265)
 
 • ———— # 🦈 # ———— •
 
