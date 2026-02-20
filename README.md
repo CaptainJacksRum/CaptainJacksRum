@@ -8,11 +8,13 @@
 
 💙 ︵ Nonsharing Vox yumeshipper. StaticSparrow CEO (Vox x Captain Jack Sparrow)
 
+💜 ︵ I get uncomfortable when Vox is shipped with anyone other than Valentino, but ships are still welcome otherwise! pls...
+
 • ———— # 🏖 # ———— •
 
 ✅ ︵ Interests/Likes :: Pirates of the Caribbean, Arcane, EPIC the musical, Forsaken, HTTYD, TADC, Percy Jackson, Hamilton, Hazbin Hotel, The Rolling Stones, Black Sabbath, Hollywood Vampires, sunsets, beaches, dogs, church, the color blue
 
-❌️ ︵ Dislikes/DNI :: Typical DNI criteria, satanists. If you make Jesus gay or an Overlord on PT do not interact.
+❌️ ︵ Dislikes/DNI :: Typical DNI criteria, satanists. If you make Jesus gay or an Overlord on PT do not interact/aimed.
 
 ⚠ ︵ IWEC/IWC :: 18+ & 13- (will add more)
 
